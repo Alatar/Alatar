@@ -1,0 +1,1 @@
+Linking my account Alatar on GitHub with my address 5EjxVRBM89qLE6h5soN4dTrCDUjnxQB9xUSUSX43w8tGrVRh on Substrate in mycryptoprofile.io, and the challenge code is: 097f3ce8c03774c893dd5204afd8797a. #LitentryVerifyMyAddress
